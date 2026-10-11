@@ -207,4 +207,4 @@ One Must Fall is released as a full free version with all features and updates i
 Don’t wait! Download One Must Fall today and experience the excitement of robot battles from the comfort of your Windows device!
 
 ---
-**Last updated:** 2026-10-11 08:28:55 UTC
+**Last updated:** 2026-10-11 15:26:12 UTC
